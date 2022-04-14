@@ -23,3 +23,7 @@ PHARRELLWILLIAMS.COM
 COLUMBIARECORDS.COM
 
 [sony-logo.png]
+
+https://imgur.com/gallery/TmJ0z2b    columbia logo
+https://imgur.com/gallery/XhtugdJ     cover
+https://imgur.com/gallery/4GgwC4Q   sony logo
